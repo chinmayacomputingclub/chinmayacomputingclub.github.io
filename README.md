@@ -1,1 +1,0 @@
-# chinmayacomputingclub.github.io
